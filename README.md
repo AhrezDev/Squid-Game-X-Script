@@ -1,1 +1,0 @@
-# Squid-Game-X-Script
